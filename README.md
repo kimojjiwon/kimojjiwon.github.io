@@ -1,1 +1,0 @@
-# kimojjiwon.github.io
